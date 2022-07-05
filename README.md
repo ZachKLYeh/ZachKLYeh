@@ -1,3 +1,3 @@
-Hi, I'm Zach Yeh. 
+Hi, I'm Zachary Yeh. 
 
 Email: zach.kl.yeh@gmail.com
